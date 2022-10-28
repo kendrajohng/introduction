@@ -1,7 +1,7 @@
 # introduction
 
 # 💫 About Me:
-I am a Technical Writer for an IT company who contracts to the USEPA.  I am the lead for documentation for various projects and development materials such as release notes, user guides, SOPs, developer instruction manuals, and pre-development analysis documents/proposals/concept of operations.<br>I'm currently working on building my own e-commerce website to sell my digital document templates and artwork.<br>I'm currently taking 2 Udemy courses:<br>* The Complete 2022 Web Development Bootcamp by Dr. Angela Yu<br>* The Web Developer Bootcamp 2022 by Colt Steele<br>Ask me about formatting and writing documents :)<br>Fun facts:<br>* I drink too much coffee, skateboard, listen to comedic podcasts, draw on my iPad using Procreate, and do freelance writing and design<br>
+I am a Technical Writer for an IT company who contracts to the USEPA.  I am the lead for documentation for various projects and development materials such as release notes, user guides, SOPs, developer instruction manuals, and pre-development analysis documents/proposals/concept of operations.<br>I'm currently working on building my own e-commerce website to sell my digital document templates and artwork.<br>I'm currently taking 2 Udemy courses:<br>* The Complete 2022 Web Development Bootcamp by Dr. Angela Yu<br>* The Web Developer Bootcamp 2022 by Colt Steele<br>Ask me about formatting and writing documents :)<br>Fun facts:<br>* I drink too much coffee, skateboard, listen to comedic podcasts, draw on my iPad using Procreate, and do freelance writing and design via Fiverr<br>
 
 
 ## 🌐 Socials:
